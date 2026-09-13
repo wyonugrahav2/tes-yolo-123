@@ -1,3 +1,3 @@
 # tes-yolo-123 nononono
 
-Co-authored-by: Temen Fiktif <bukan.emailmu12345@gmail.com>
+Co-authored-by: Temen Hantu <temen.hantu12345@gmail.com>
